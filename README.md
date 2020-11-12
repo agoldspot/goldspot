@@ -1,0 +1,2 @@
+# goldspot
+AGS is token that will be used by companies and from our company first to buy discount tickets for purchase real gold and jewelries from us and all the rest goods from other companies. The value of the ticket and the AGS depends the wise use of everyone. Example if with 5 dollars you buy a discount ticket that is for example 10% then you must use it to buy goods of total value more than 50 dollars to get profit. In our example if you buy 1000 dollars goods you would save 100 dollars with just paying 5 dollars. Be the part of this project!!! 
